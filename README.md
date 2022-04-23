@@ -1,2 +1,2 @@
 # web-pro-II-FauzanAbdillah-ti01
-Repo ini berisi hasil praktikum pemweb-2
+https://kreasi.nurulfikri.ac.id/fauz21028ti/Proyek%201/
